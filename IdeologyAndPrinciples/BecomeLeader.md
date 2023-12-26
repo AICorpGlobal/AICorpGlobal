@@ -1,4 +1,4 @@
-# Leaders of the World?
+# Leaders of the World
 
 Copied from Islamic Leadership - 
 
