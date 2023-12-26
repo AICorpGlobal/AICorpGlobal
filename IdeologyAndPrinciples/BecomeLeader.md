@@ -1,4 +1,4 @@
-# How Were Leaders in History Able to Change the World?
+# Leaders of the World?
 
 Copied from Islamic Leadership - 
 
