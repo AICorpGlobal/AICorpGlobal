@@ -26,6 +26,11 @@ Crafting a Leader to lead the company might be the hardest of hardest as I know 
 I wish he should have the right values vision and the courage to drive the company.Acceptance of Employees is of utmost importance.
 Never for profit ditch the staff, perfromance evaluation or journey path differences should be the only reason to let someone go.
 
+A leader is a leader if and only if there are followers, the basic thing that a leader should provide is protection from external threats and the follower should provide in return loyalty/commitment and valour to stick with the righteous vision of the leader.
+
+
+#leadership #aicorp
+
 For now when everyone call to stand with something or someone. 
 
 I call to Stand with Palestine. 
