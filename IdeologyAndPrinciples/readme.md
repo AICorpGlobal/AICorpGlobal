@@ -4,12 +4,12 @@ I believe this Individual needs to represent the collective of the people who wo
 But for people to gather together they need a cause and purpose without which it will submerge into chaos.
 As for any good society its s blend of Order and Chaos at its balance.
 
-For AICORP I wish the company to abide and have set of core values whihc shouldn't change. 
-Since the current time when I write this , I would like to start with the most active topic that is Oppression
+For AICORP I wish the company to abide and have set of core values . 
+Since when I write this , I would like to start with the most active topic that is Oppression
 
 While writing I don't want to keep distingushing between women and men. so I might keep using man or he even if it applies to women. 
 
-To Start fighting for any cause, keep in mid about this warning ⚠ - One might become the very same evil that he fought against
+**Before Start fighting for any cause, keep in mid about this warning ⚠ - One might become the very same evil that he fought against**
 
 ![EusUn1xVcAM58Df](https://github.com/AICorpGlobal/AICorpGlobal/assets/8478849/bb28e808-ced7-4c5e-a13a-8e9bdaae0712)
 
