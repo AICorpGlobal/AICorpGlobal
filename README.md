@@ -1,7 +1,6 @@
 # AICorpGlobal
 
-[Principles for Life](./IdeologyAndPrinciples/readme.md)
-[Principles for Life](./IdeologyAndPrinciples/BecomeLeader.md)
+[Principles for Life](./IdeologyAndPrinciples/readme.md) And Leaders Discover and Lead.
 
 ## Key Ideas at Work
 
