@@ -17,4 +17,4 @@
 - Be analytical and logical
 - Purpose-driven innovation
   - Honda : If you hire people just because they can do a job, they'll work for your money. But if you hire people who believe what you believe, they'll work with their blood and sweat and tears
-  - Consumer-centric product development 
+- Consumer-centric product development 
