@@ -303,4 +303,3 @@
 
 ---
 
-These 60 principles offer a well-rounded guide for life, encouraging kindness, resilience, and balance. Living by these values helps us grow, connect with others, and create a fulfilling life.
