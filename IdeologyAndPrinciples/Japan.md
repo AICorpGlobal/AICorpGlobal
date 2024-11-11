@@ -71,5 +71,4 @@ Japanese culture is deeply rooted in unique principles and philosophies that sha
 ### 18. **Inemuri (居眠り)** — *Napping with Purpose*
    - **Description**: Inemuri is the cultural acceptance of napping briefly in public or at work, seen as a sign of dedication to one’s work.
    - **Purpose**: It allows people to recharge when needed and reflects the Japanese work ethic that values both rest and productivity.
-
-These Japanese principles encourage a harmonious life that balances personal fulfillment, social responsibility, and appreciation for the natural world, fostering a mindful, resilient, and purposeful approach to life.
+ 
