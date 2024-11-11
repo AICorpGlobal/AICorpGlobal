@@ -2,7 +2,7 @@
 
 [Principles for Life](./IdeologyAndPrinciples/readme.md) And Leaders Lead and Discover.
 
-## Key Ideas at Work
+## Ideas at Work
 
 - Differentiation and Meritocracy :  Rank employees into top 20%, middle 70%, and bottom 10%.  Rewarded top performers generously.
 - Remove Bureaucracy, make sure processes accelerate. write everything down so some else should be able to pick it up from where you left.
