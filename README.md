@@ -7,7 +7,7 @@
 - Differentiation and Meritocracy :  Rank employees into top 20%, middle 70%, and bottom 10%.  Rewarded top performers generously.
 - Remove Bureaucracy, make sure processes accelerate. write everything down so some else should be able to pick it up from where you left.
 - Understand the "Collective Wisdom" - valuing all input. but the leader owns the outcome. 
-- Don't follow the market, create it. Leaders as suppoed to lead 
+- Don't follow the market, create it. Leaders as supposed to lead 
 - Take calculated risks, and do the due diligence to make sure the calculations are correct.
 - Product must be innovative but practical.
 - Make what you sell, not sell what you make
