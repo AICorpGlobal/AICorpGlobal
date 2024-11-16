@@ -34,6 +34,7 @@ Key Departments:
     Marketing:
         Marketing Managers
         Social Media Specialists
+        Market Research Team
 
     Sales:
         Sales Representatives
