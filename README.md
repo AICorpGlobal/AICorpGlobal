@@ -4,6 +4,8 @@
 
 ## Ideas at Work
 
+- Be a Self learner don't expect spoonfeeding.
+- Write everything down, Don't make people ask.
 - Differentiation and Meritocracy :  Rank employees into top 20%, middle 70%, and bottom 10%.  Rewarded top performers generously.
 - Remove Bureaucracy, make sure processes accelerate. write everything down so some else should be able to pick it up from where you left.
 - Understand the "Collective Wisdom" - valuing all input. but the leader owns the outcome. 
