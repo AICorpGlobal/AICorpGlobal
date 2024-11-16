@@ -46,10 +46,7 @@ Key Departments:
         Facilities
 
 # Organizational Structure:
-
-![image](https://github.com/user-attachments/assets/02788598-f99a-48fc-bbc5-7bffaa923b83)
-
-
+ 
 How it Works:
 
 ```mermaid
