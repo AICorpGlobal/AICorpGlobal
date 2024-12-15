@@ -13,7 +13,7 @@
 - Take calculated risks, and do the due diligence to make sure the calculations are correct.
 - Product must be innovative but practical.
 - Make what you sell, not sell what you make
-- Lead the public with new products rather than ask them what kind of products they want. if the public new it they might have built it.
+- Lead the public with new products rather than ask them what kind of products they want. if the public knew it they might have built it.
 - Never take 'no' for an answer. Always understand why. 
 - Be analytical and logical. Emotions may cloud you.
 - Purpose-driven innovation. Money is secondary don't run after it, Understand the purpose and serve.
