@@ -1,5 +1,9 @@
 AICORP : Functional-Project Matrix
 
+
+
+**Sales and Customer Satisfaction should be directly overseen by the CEO and Top level Directors, if possible CEO should take Customer support calls.**
+
 This hybrid structure combines the stability and efficiency of a functional structure with the flexibility and focus of a project-based structure. While there's no direct dual reporting, project managers report to functional managers, ensuring alignment with the organization's overall strategy.
 
 Key Characteristics:
@@ -15,8 +19,6 @@ Key Characteristics:
 - Minimal Meetings, Maximum Efficiency: A lean approach to meetings, focusing on key decision points and progress reviews.
 
 - Written Communication: Clear and concise written communication, including project plans, status reports, and design documents.
-
-- Sales and Customer Satisfaction should be directly overseen by the CEO and Top level Directors, if possible CEO should take Customer support calls.
 
 Key Departments:
 
