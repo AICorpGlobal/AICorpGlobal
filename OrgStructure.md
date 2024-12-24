@@ -16,6 +16,8 @@ Key Characteristics:
 
 - Written Communication: Clear and concise written communication, including project plans, status reports, and design documents.
 
+- Sales and Customer Satisfaction should be directly overseen by the CEO and Top level Directors, if possible CEO should take Customer support calls.
+
 Key Departments:
 
     Product Engineering:        
